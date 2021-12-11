@@ -17,5 +17,3 @@ I choose to do a vector image for this project it is an image of my the sun sett
 
 
 
-[Sunset.pdf](https://github.com/Lshepherdjr/Art/files/7696398/Sunset.pdf)
-[Sunset.pdf](https://github.com/Lshepherdjr/Art/files/7696413/Sunset.pdf)
